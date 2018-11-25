@@ -1,0 +1,1 @@
+Icons were taken from website www.iconfinder.com and they were stated as FREE during the download time.
